@@ -1,4 +1,5 @@
-##Hi, im Lyan221m
+## Hey there I am Lyan221m and I like technology. :) 
+
 👜 Currently an Student
 🏡I live in Germany
 
