@@ -1,13 +1,12 @@
 ## Hey there I am Lyan221m and I like technology. :) 
 
-👜 Currently an Student
+# 💫 About Me:
 
+👜 Currently an Student
 
 🏡I live in Germany
 
 
-# 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
